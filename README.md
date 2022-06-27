@@ -45,6 +45,10 @@ If you ask me about the official language of Manipur, I'd say 'Meeteilon'. It is
 
 ### Cuisine
 
+We just landed on one of the best things about Kangleipak. The people have a supreme amount of love for fish. Although salt-water fishes are imported to the state, a majority of the people thrive on fresh-water fishes which are provided by a lot of rivers and most prominently by the [Loktak lake](https://en.m.wikipedia.org/wiki/Loktak_Lake). Indeed, the Loktak lake (the largest fresh-water lake in the northeastern India) has been feeding the bellies of the people for centuries. A considerable number of the people has a thing for meat &mdash; chicken, pork, beef, among others. You can even find people who have fed on goat meat, buffalo meat, dog meat, cat meat, and even snakes. 
+
+We have only scratched the surface. The cuisine of the land is much more than fishes and meat. Indeed, it can be argued that the variety and range of fruits, vegetables and cooked foods eaten by the people of the land would rival some of the best of the world.
+
 ### Lodging
 
 ### Climate
